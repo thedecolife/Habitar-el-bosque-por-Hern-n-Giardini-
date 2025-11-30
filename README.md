@@ -1,1 +1,2 @@
-# Habitar-el-bosque-por-Hern-n-Giardini-
+# Habitar-el-bosque-por-Hernán-Giardini-
+Para Hernán Giardini, la naturaleza no es un concepto abstracto ni un recurso a administrar; es su entorno cotidiano. Desde hace más de una década, eligió radicarse en Bariloche, Río Negro, alejándose del cemento urbano para vivir conectado con los bosques y montañas que definen la identidad de la Patagonia. Esta decisión de vida es coherente con su rol profesional: como coordinador de la campaña de Bosques en Greenpeace, Giardini defiende literalmente el suelo que pisa.
